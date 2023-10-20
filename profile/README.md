@@ -28,7 +28,7 @@ We are always FOR long-term cooperation and new acquaintances, so feel free to w
 
 Our portfolio and media (https://linktr.ee/hexsplash ).  
 
-<h3>How I do:</h3>
+<h3>How we do:</h3>
 
 💻 Optimized and secure code
 
